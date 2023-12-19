@@ -1,0 +1,1 @@
+# myakota.github.io
